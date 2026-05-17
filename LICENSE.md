@@ -1,10 +1,10 @@
-Professional IVPN Extension | IP masking + dedicated IP is the best IVPN extension with IP masking and dedicated IP. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/ivpn-cs22/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
