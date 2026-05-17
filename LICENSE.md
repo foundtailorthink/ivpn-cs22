@@ -1,10 +1,10 @@
-Profissional IVPN Extensão | mascaramento de IP + IP dedicado é o melhor IVPN extensão com mascaramento de IP e IP dedicado. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/ivpn-cs22/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
