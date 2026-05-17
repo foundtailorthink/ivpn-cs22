@@ -1,4 +1,4 @@
-
+Professional IVPN Extension | IP masking + dedicated IP is the best IVPN extension with IP masking and dedicated IP. Secure and optimized.
 
 
 
